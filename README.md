@@ -1,2 +1,2 @@
-# filoscimientos
-Conocimientos filosóficos al alcance de todos. 
+# Filoscimientos
+## Conocimientos filosóficos al alcance de todos. 
