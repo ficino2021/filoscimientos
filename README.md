@@ -3,7 +3,7 @@
 
 Hoy les comparto este poema del maestro Mario Benedetti.
 
-**Estados de ánimo**
+*Estados de ánimo*
 
 Unas veces me siento como pobre colina y otras como montaña de cumbres repetidas. Unas veces me siento como un acantilado y en otras como un cielo azul pero lejano. A veces uno es manantial entre rocas y otras veces un árbol con las últimas hojas.
 
