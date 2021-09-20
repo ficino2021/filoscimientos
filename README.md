@@ -1,8 +1,6 @@
 # Filoscimientos
 ## Conocimientos filosóficos al alcance de todos. 
 
-Hola vengo a enseñarles de la vida y de la actividad filosófica
-
 Hoy les comparto este poema del maestro Mario Benedetti.
 
 **Estados de ánimo**
