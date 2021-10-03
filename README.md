@@ -10,5 +10,3 @@ Unas veces me siento como pobre colina y otras como montaña de cumbres repetida
 Pero hoy me siento apenas como laguna insomne con un embarcadero ya sin embarcaciones; una laguna verde inmóvil y paciente conforme con sus algas sus musgos y sus peces, sereno en mi confianza.
 
 Confiando en que una tarde te acerques y te mires, te mires al mirarme.
-
-Poema que nos narra cómo el estado de humor del autor va variando a lo largo del tiempo, oscilando a lo largo del tiempo y esperando encontrar el amor.
