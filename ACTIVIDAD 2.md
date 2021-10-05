@@ -1,2 +1,3 @@
-[esquema 2.docx](https://github.com/Cezimolgado/filoscimientos/files/7283581/esquema.2.docx)
-Actividad-2
+
+Actividad-2![esquema 2 imagen](https://user-images.githubusercontent.com/88803996/135978241-df29d328-2e7f-480a-9017-29aafd18678d.jpg)
+
