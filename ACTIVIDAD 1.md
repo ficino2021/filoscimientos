@@ -1,4 +1,9 @@
-Actividad-1
+---
+layout: page
+title: Actividad 1 
+---
+
+
 
 Gimena del Río
 
